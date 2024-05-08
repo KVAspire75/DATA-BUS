@@ -1,1 +1,1 @@
-Projects were required for Module Completion - Strict guidelines were given for style and submission
+Sample of Projects - Required for Module Completion - Strict guidelines were given for Content and Style

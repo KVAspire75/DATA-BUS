@@ -1,1 +1,1 @@
-Add this in later - LOOKS LIKE ONLY ONE SO COMMENT ON ALL PROJECTS JUST A SHORT ALL AROUND SNIPPETT
+Projects were required for Module Completion and strict guidelines were given for style and submission.
